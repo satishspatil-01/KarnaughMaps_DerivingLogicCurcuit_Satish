@@ -1,0 +1,1 @@
+# KarnaughMaps_DerivingLogicCurcuit_Satish
